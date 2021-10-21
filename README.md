@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DJ90864
+- 👀 I’m interested in Aeronautical and Rocket Engeering.
+- 🌱 I’m currently learning to build Drones.
